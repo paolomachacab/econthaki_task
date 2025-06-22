@@ -1,1 +1,1 @@
-# econthaki_task
+2025 Econthaki
